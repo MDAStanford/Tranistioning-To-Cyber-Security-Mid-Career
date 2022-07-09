@@ -1,2 +1,10 @@
 # Tranistioning-To-Cyber-Security-Mid-Career
-The Adventures Of Mick Transitioning Careers To Cyber Security
+The Adventures Of Mick Switching To Cyber Security
+
+
+The purpose of this blog is catharsis, but if it helps someone - bonus. The first entries will be long, and I won't be offended if you want to skip this part but a good back story sets the blog up to succeed. Big picture.
+
+So, who am I and how did I get here? Good questions that I'll cover briefly. I live in Santa Monica CA, and am origially from Portland OR.
+
+SIDE NOTE #1: Timbers just beat Seattle 3-0. IN SEATTLE.
+The Timbers are my team. They say you don't find your club, it finds you. So true. Win, lose or draw my heart has been with this team sincew 1977.![download](https://user-images.githubusercontent.com/99157857/178126191-dbd00023-17e1-455c-b986-69796f15cd70.png)
