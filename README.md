@@ -7,4 +7,7 @@ The purpose of this blog is catharsis, but if it helps someone - bonus. The firs
 So, who am I and how did I get here? Good questions that I'll cover briefly. I live in Santa Monica CA, and am origially from Portland OR.
 
 SIDE NOTE #1: Timbers just beat Seattle 3-0. IN SEATTLE.
-The Timbers are my team. They say you don't find your club, it finds you. So true. Win, lose or draw my heart has been with this team sincew 1977.![download](https://user-images.githubusercontent.com/99157857/178126191-dbd00023-17e1-455c-b986-69796f15cd70.png)
+The Timbers are my team. They say you don't find your club, it finds you. So true. Win, lose or draw my heart has been with this team sincew 1977.
+
+
+![download](https://user-images.githubusercontent.com/99157857/178126194-a6d65821-786e-4d53-a364-5d0178c6d765.png)
