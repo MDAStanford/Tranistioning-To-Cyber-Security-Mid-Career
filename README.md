@@ -33,11 +33,11 @@ Here's a list of topics we'll cover:
 
   *Online Courses (and a really cool hack!)
 
-J. Product Management
+  *Product Management
 
-K. Ageism 
+  *Ageism 
 
-L. BootCamp Resources
+  *BootCamp Resources
 
 
 
@@ -50,10 +50,12 @@ Plus, I'll be posting day-to-day updates, thoughts, musings, etc et al in this j
 
 
 
-![download](https://user-images.githubusercontent.com/99157857/178163629-4dc7d589-71ba-4d8d-8461-9725bad0ebe7.jpg)
+BLOGSPOT 2 / JULY 10 2022
 
 
-  
+ ![download](https://user-images.githubusercontent.com/99157857/178163629-4dc7d589-71ba-4d8d-8461-9725bad0ebe7.jpg)
+ 
+ I read an article this morning 
 
 https://www.cnn.com/2022/07/10/politics/north-korean-hackers-crypto-currency-firms-infiltrate/
 
