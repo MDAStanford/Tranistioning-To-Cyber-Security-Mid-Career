@@ -23,5 +23,6 @@ Long storty compacted:
   *I worked for Generic-Business-Name for 3 years
   
   SIDE NOTE #2: No one gets trashed on this blog. I've worked a few places in my career - some good, some not-so-good. No sour grapes.
+  
   *Went off on my own in 2013 because I had a couple of epic consulting contracts, and thought that running a business was easy. Until it wasn't. Many reasons I should have exited earlier, but I didn't.
   
