@@ -4,7 +4,7 @@ The Adventures Of Mick Switching To Cyber Security
 
 BLOG SPOT 1 / JULY 9 2022
 
-The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Message In A Bottle. If you understand that reference, you're most likely Gen X. And if you're Gen X, you're in the right spot.
+The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Message In A Bottle. If you understand that reference, you're in the right spot.
 
 
 
@@ -31,7 +31,7 @@ G. Studying For Certifications
 
 H. Scams
 
-I. Online Learning (and a really cool hack!)
+I. Online Resources (and a really cool hack!)
 
 J. Product Management
 
