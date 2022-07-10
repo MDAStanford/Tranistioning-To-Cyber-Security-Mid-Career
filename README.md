@@ -1,5 +1,5 @@
 # Tranistioning-To-Cyber-Security-Mid-Career
-The Adventures Of Mick Switching To Cyber Security
+The Adventures Of Mick Changing Industries
 
 
 BLOG SPOT 1 / JULY 9 2022
