@@ -31,11 +31,22 @@ G. Studying For Certifications
 
 H. Scams
 
-I. Online Resources (and a really cool hack!)
+I. Online Courses (and a really cool hack!)
 
 J. Product Management
 
-J. 
+K. Ageism 
+
+L. BootCamp Resources
+
+
+
+
+
+
+
+
+Plus, I'll be posting day-to-day updates, thoughts, musings, etc et al in this journey. 
 
 
 
