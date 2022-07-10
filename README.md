@@ -26,3 +26,7 @@ Long storty compacted:
   
   *Went off on my own in 2013 because I had a couple of epic consulting contracts, and thought that running a business was easy. Until it wasn't. Many reasons I should have exited earlier, but I didn't.
   
+ *My wife suggested that I go back to school, which I would never have thought of in a million years.
+ 
+   That brings us up to now: I registered for UCLA's cyber security bootcamp, worked my butt off, and walked away with a 4.0 GPA.
+  
