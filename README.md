@@ -6,6 +6,11 @@ BLOG SPOT 1 / JULY 9 2022
 
 The purpose of this blog is catharsis. If it helps someone - bonus. The first entries will be long, and I won't be offended if you skip this part, but a good back story sets my blog up to succeed. Thinking big picture.
 
+My target audience is anyone switching things up into a new career.
+
+
+
+
 Who am I and how did I get here? Good questions that I'll cover briefly. 
 
  *I live in Santa Monica CA, and am origially from Portland OR.
