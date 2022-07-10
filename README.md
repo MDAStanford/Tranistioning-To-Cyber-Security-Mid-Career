@@ -13,13 +13,31 @@ The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Mes
 
 Here's a list of topics we'll cover:
 
-A. The BootCamp Experience
 
-B. Why Cyber Security
 
-C. Studying With Millenials and Zoomers
+A. The New Way Of Learning
+
+B. The BootCamp Experience
+
+C. Why Cyber Security
 
 D. Job Applications & Interviews
+
+E. Recruiters
+
+F. Linked In
+
+G. Studying For Certifications
+
+H. Scams
+
+I. Online Learning (and a really cool hack!)
+
+J. Product Management
+
+J. 
+
+
 
 
 
