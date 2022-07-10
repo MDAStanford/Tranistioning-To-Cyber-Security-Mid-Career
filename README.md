@@ -61,8 +61,6 @@ Anyhow - North Korea is infiltrating IT departments in the US. One DPRK spy had 
 This on top of the fact that in the past few weeks, the DPRK has been targeting US power grids, and have initiated a campaign of ransomeware toward hospitals. Little kids die when people attack hospitals. And that's why these bastards have to be stopped.
 Something every American can get behind.
     
-    This on top of the fact that in the past few weeks, the DPRK has been targeting US power grids, and have initiated a campaign of ransomeware toward hospitals. Little kids die when people attack hospitals. And that's why these bastards have to be stopped.
-    Something every American can get behind.
 
 https://www.cnn.com/2022/07/10/politics/north-korean-hackers-crypto-currency-firms-infiltrate/
 
