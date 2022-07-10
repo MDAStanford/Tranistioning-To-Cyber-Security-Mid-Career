@@ -4,7 +4,7 @@ The Adventures Of Mick Changing Industries
 
 BLOG SPOT 1 / JULY 9 2022
 
-The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Message In A Bottle. If you understand that reference, you're in the right spot.
+The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Message In A Bottle. If you understand that reference, you've found the right blog.
 
 
 
@@ -15,23 +15,23 @@ Here's a list of topics we'll cover:
 
 
 
-A. The New Way Of Learning
+  *The New Way Of Learning
 
-B. The BootCamp Experience
+  *The BootCamp Experience
 
-C. Why Cyber Security
+  *Why Cyber Security
 
-D. Job Applications & Interviews
+  *Job Applications & Interviews
 
-E. Recruiters
+  *Recruiters
 
-F. Linked In
+  *Linked In
 
-G. Studying For Certifications
+  *Studying For Certifications
 
-H. Scams
+  *Scams
 
-I. Online Courses (and a really cool hack!)
+  *Online Courses (and a really cool hack!)
 
 J. Product Management
 
@@ -50,11 +50,12 @@ Plus, I'll be posting day-to-day updates, thoughts, musings, etc et al in this j
 
 
 
+![download](https://user-images.githubusercontent.com/99157857/178163629-4dc7d589-71ba-4d8d-8461-9725bad0ebe7.jpg)
 
 
   
 
-
+https://www.cnn.com/2022/07/10/politics/north-korean-hackers-crypto-currency-firms-infiltrate/
 
 
 
