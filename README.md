@@ -50,7 +50,7 @@ Plus, I'll be posting day-to-day updates, thoughts, musings, etc et al in this j
 
 
 
-A. AGEISM
+
 
   
 
