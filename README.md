@@ -64,7 +64,11 @@ Something every American can get behind.
 
 https://www.cnn.com/2022/07/10/politics/north-korean-hackers-crypto-currency-firms-infiltrate/
 
+Prepping for the coming week:
 
+MONDAY - Phone call with a FB friend that went to Lakeridge HS. He's friends with about 9 of my friends, so he passed my credability radar. He's been in CS for a while, and has quite a few contacts. I'll let him know - I want to build my network, and get plugged into a job as soon as possible. PM or anything entry level. 
+
+TUESDAY - My calendar has a 10AM call with a recruiter, but the meeting request doesn't have any Zoom codes or phone numbers. If anyone calls on Tuesday @ 10, I'll need to remember to take the call.
 
 
 
