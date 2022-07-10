@@ -2,7 +2,7 @@
 The Adventures Of Mick Switching To Cyber Security
 
 
-JULY 9 2022
+BLOG SPOT 1 / JULY 9 2022
 
 The purpose of this blog is catharsis. If it helps someone - bonus. The first entries will be long, and I won't be offended if you skip this part, but a good back story sets my blog up to succeed. Thinking big picture.
 
@@ -18,7 +18,7 @@ The Timbers are my team. They say you don't find your club, it finds you. So tru
 
 
 
-  *earned a BA from Portland State University, which was recently ranked by US World & News Report as the most liberal university in the USA.
+  *I earned a BA from Portland State University, which was recently ranked by US World & News Report as the most liberal university in the USA.
   *since leaving college, I've worked in the sporting goods industry. From sourcing to logistics to product development, a tiny amount of design and product management. 
   *I moved to the Los Angeles area in 2007
   *I worked for Generic-Business-Name for 3 years
@@ -44,7 +44,7 @@ The Timbers are my team. They say you don't find your club, it finds you. So tru
    
    *A few class-mates and I formed a study group for Security+. Im not 100% convinced that I'll continue. It's hard to think over people talking. I've turned down the volume on my computer, and am using Zoom annotations to select answers. We'll see how that progresses.
    
-   For next week, I have 3 phone calls lined up. Two recruiters, and a Facebook friend from HS that has worked in the industry for a while.
+   For next week, I have 3 phone calls lined up. Two recruiters, and a Facebook friend from HS that has worked in the industry for a while. 
    
    To this point I've had a ton of recruiter interviews, a decent number of 2nd interviews, and 3 third interviews. No offers yet.
    
