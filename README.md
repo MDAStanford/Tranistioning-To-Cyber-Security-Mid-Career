@@ -46,8 +46,8 @@ The Timbers are my team. They say you don't find your club, it finds you. So tru
    
    For next week, I have 3 phone calls lined up. Two recruiters, and a Facebook friend from HS that has worked in the industry for a while. 
    
-   To this point I've had a ton of recruiter interviews, a decent number of 2nd interviews, and 3 third interviews. No offers yet.
+   To this point I've had a ton of recruiter interviews, a decent number of 2nd interviews, and 3 third interviews. I'll get into that later.
    
    
-   This is a good place to end BlogSpot #1.  Will update once per week.
+   This is a good place to end BlogSpot #1.  
   
