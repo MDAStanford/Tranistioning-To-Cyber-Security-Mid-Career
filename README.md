@@ -37,6 +37,7 @@ The Timbers are my team. They say you don't find your club, it finds you. So tru
  *I registered for UCLA's cyber security bootcamp, worked my butt off, and walked away with a 4.0 GPA.
    
   *We'll talk about the bootcamp and my experience in upcoming blog entries. 
+  
   *Currently job-seeking, and in parrelell studying for Security+ as well as an AWS Cloud certification.
   
   And here we are. I graduated in March 2022 and am looking for the first foot-in-the-door within cyber security. And I'm totally not that picky:
