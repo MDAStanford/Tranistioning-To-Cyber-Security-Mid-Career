@@ -64,13 +64,22 @@ BLOGSPOT 2 / JULY 10 2022
 
  ![download](https://user-images.githubusercontent.com/99157857/178163629-4dc7d589-71ba-4d8d-8461-9725bad0ebe7.jpg)
  
- I read an article this morning about a topic that fascinates me: North Korea. It's eerie, and has been so since I was a little kid. 
+North Korea fascinates me. It's eerie, and has been so since I was a little kid. Sealed off from the rest of the world.
+I've seen documentaries - little girls prepping for a synchronized stadium event in honor of Dear Leader. Propoganda piped into people's homes 24/7. Kidnapping Japanese nationals. And the creepiest: the Americans that defected to North Korea after the conflict in the 50's. 
+
+
+https://en.wikipedia.org/wiki/List_of_American_and_British_defectors_in_the_Korean_War
+
+
+
+It's a thuggish regime that needs to be destroyed within my lifetime.
+
 North Korea is infiltrating IT departments in the US. One DPRK spy passed two federal background checks, and came out clean. Another eerie detail: the NK spy wired 90% of his earnings back to the Fatherland. 
 
 This on top of the fact that in the past few weeks, the DPRK has been targeting US power grids, and have initiated a campaign of ransomeware toward hospitals. Little kids die when people attack hospitals. And that's why these bastards have to be stopped.
 Something every sane person can get behind.
 
-It's a thuggish regime that needs to be destroyed within my lifetime.
+
     
 
 https://www.cnn.com/2022/07/10/politics/north-korean-hackers-crypto-currency-firms-infiltrate/
