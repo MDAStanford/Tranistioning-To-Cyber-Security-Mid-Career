@@ -86,6 +86,13 @@ Something every sane person can get behind.
 
 https://www.cnn.com/2022/07/10/politics/north-korean-hackers-crypto-currency-firms-infiltrate/
 
+![images-1](https://user-images.githubusercontent.com/99157857/178171225-9b52d704-9ee3-4a20-a4dd-0375349dcd90.jpg)
+
+
+
+
+
+
 Prepping for the coming week:
 
 MONDAY - Phone call with a FB friend that went to Lakeridge HS. He's friends with about 9 of my friends, so he passed my credability radar. He's been in CS for a while, and has quite a few contacts. I'll let him know - I want to build my network, and get plugged into a job as soon as possible. PM or anything entry level. Not picky.
