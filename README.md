@@ -42,7 +42,7 @@ Some topics we'll cover:
 
   *BootCamp Resources
   
-  If anyone has other topics I should write about or any questions that I can help answer, reach out to me @ MichaelDavidStanford@gmail.com.
+  If there are other topics I should write about, reach out to me @ MichaelDavidStanford@gmail.com.
 
 
 
