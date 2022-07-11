@@ -93,7 +93,7 @@ Weekly resume goal: 50 per day. They say it's useless to send out resumes blindl
 
 4 - Study for Security+ (two hours / trying for three hours a day). I need to find a tutoirial that doesn't put me to sleep. I need to get this ticked off my list ASAP, which should simplify my job search. 
 
-5 - Pay some attention to Indeed.com. We've been leaning on Liked In pretty hard over the past few weeks.
+5 - Pay some attention to Indeed.com. We've been leaning on Linked In pretty hard over the past few weeks.
 
 6 - study group is kind of killing me, and I'm not sure it's helping me to prepare for the cert. But it has to be done. Need to get this scheduled for October 1, and if needed a re-take on November 1. 
 
