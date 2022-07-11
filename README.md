@@ -4,7 +4,9 @@ The Adventures Of Mick Changing Industries
 
 BLOG SPOT 1 / JULY 9 2022
 
-The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Message In A Bottle. 
+The purpose of this blog is catharsis. If it helps someone - bonus. 
+
+A GitHub Message In A Bottle. 
 
 ![71I5KHF70JL _SX522_](https://user-images.githubusercontent.com/99157857/178168130-6a175657-e7d4-4f9d-82e0-998c80a1ba22.jpg)
 
@@ -112,7 +114,7 @@ Weekly resume goal: 50 per day. They say it's useless to send out resumes blindl
 
 6 - study group is kind of killing me, and I'm not sure it's helping me to prepare for the cert. But it has to be done. Need to get this scheduled for October 1, and if needed a re-take on November 1. 
 
-7 - take one Sec+ test per night.
+7 - take one Sec+ practice test per night.
 
 
   
