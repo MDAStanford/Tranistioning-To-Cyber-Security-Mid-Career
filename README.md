@@ -101,10 +101,10 @@ TUESDAY - My calendar has a 10AM call with a recruiter, but the meeting request 
 
 WEDNESDAY - Call with the UCLA Career Center. Interested to see how this goes. And...I was given Linked In+, good for nine months.
 
-And...waiting for a response to a recruiter call that I had last week. It's a pet meds-on-demand concept, based in Portland.
+And...waiting for a response to a recruiter call that I had last week. It's a pet meds-on-demand concept, based in Portland. The initial recruiter call went well, but most of those calls go well. It's getting to the 2nd interview that matters right now.
 
 
-My resume is getting a lot of attention right now: I've had a ton of recruiter interviews, a signifigant number of 2nd round interviews, and 4 third-round interviews. Getting plugged into the industry is tough, but that's a realistic expectation that the instructors set from the beginning. If this was easy, everyone would be doing it.
+My resume is getting a lot of attention: I've had a ton of recruiter interviews, a signifigant number of 2nd round interviews, and 4 third-round interviews. Getting plugged into the industry is tough, but that's a realistic expectation that the instructors set from the beginning. If this was easy, everyone would be doing it.
 
 Study plan for the week:
 
