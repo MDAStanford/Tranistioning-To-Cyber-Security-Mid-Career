@@ -12,7 +12,7 @@ The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Mes
 
 
 
-Here are topics we'll cover:
+Here are some topics we'll cover:
 
 
 
@@ -20,7 +20,7 @@ Here are topics we'll cover:
 
   *The BootCamp Experience
 
-  *Why Cyber Security
+  *Mick, Why Cyber Security?
 
   *Job Applications & Interviews
 
@@ -40,7 +40,7 @@ Here are topics we'll cover:
 
   *BootCamp Resources
   
-  If anyone has other topics I should write about, or any questions that I can answer, reach out to me @ MichaelDavidStanford@gmail.com.
+  If anyone has other topics I should write about or any questions that I can help answer, reach out to me @ MichaelDavidStanford@gmail.com.
 
 
 
@@ -62,7 +62,7 @@ BLOGSPOT 2 / JULY 10 2022
 North Korea is infiltrating IT departments in the US. One DPRK spy passed two federal background checks, and came out clean. Another eerie detail: the NK spy wired 90% of his earnings back to the Fatherland. 
 
 This on top of the fact that in the past few weeks, the DPRK has been targeting US power grids, and have initiated a campaign of ransomeware toward hospitals. Little kids die when people attack hospitals. And that's why these bastards have to be stopped.
-Something every American can get behind.
+Something every sane person can get behind.
 
 It's a thuggish regime that needs to be destroyed within my lifetime.
     
