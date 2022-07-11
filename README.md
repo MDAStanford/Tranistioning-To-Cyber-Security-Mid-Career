@@ -12,7 +12,7 @@ The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Mes
 
 
 
-Here are some topics we'll cover:
+Some topics we'll cover:
 
 
 
@@ -49,7 +49,13 @@ Here are some topics we'll cover:
 
 
 
-Plus, I'll be posting the occasional day-to-day updates. Probably on Friday @ Noon when my weeks ends, and then again on Sunday as I set up my week.  
+I'll post updates (probably):
+    *Friday @ Noon, when my week ends
+    
+    *Sunday evening, when I prep for the coming week.
+    
+
+ 
 
 
 
