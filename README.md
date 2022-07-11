@@ -12,7 +12,7 @@ The purpose of this blog is catharsis. If it helps someone - bonus. A GitHub Mes
 
 
 
-Here's a list of topics we'll cover:
+Here are topics we'll cover:
 
 
 
@@ -49,7 +49,7 @@ Here's a list of topics we'll cover:
 
 
 
-Plus, I'll be posting day-to-day updates, thoughts, musings, etc et al in this journey. 
+Plus, I'll be posting the occasional day-to-day updates. Probably on Friday @ Noon when my weeks ends, and then again on Sunday as I set up my week.  
 
 
 
@@ -75,15 +75,19 @@ MONDAY - Phone call with a FB friend that went to Lakeridge HS. He's friends wit
 
 TUESDAY - My calendar has a 10AM call with a recruiter, but the meeting request doesn't have any details. If anyone calls on Tuesday @ 10, I'll remember to take the call.
 
-WEDNESDAY - Call with the UCLA Career Center. Interested to see how this goes. And...I was given Linked In+, good for nine months. 
+WEDNESDAY - Call with the UCLA Career Center. Interested to see how this goes. And...I was given Linked In+, good for nine months.
 
-My resume is getting a lot of attention right now: I've had a ton of interviews, a signifigant number of 2nd round interviews, and 4 third-round interviews. Getting plugged into the industry is tough, but that's a realistic expectation that the instructors told the class about job hunting.
+And...waiting for a response to a recruiter call that I had last week. It's a pet meds-on-demand concept, based in Portland.
+
+
+My resume is getting a lot of attention right now: I've had a ton of recruiter interviews, a signifigant number of 2nd round interviews, and 4 third-round interviews. Getting plugged into the industry is tough, but that's a realistic expectation that the instructors set from the beginning. If this was easy, everyone would be doing it.
 
 Study plan for the week:
 
-1 - I have 120 saved jobs in the cue. My goal is to knock out half of thise tonight, and the other half tomorrow.
+1 - I have 120 saved jobs in the cue. My goal is to knock out half of these tonight, and the other half tomorrow. 
+Weekly resume goal: 50 per day. They say it's useless to send out resumes blindly, but I disgree. This is a numbers game. Linked In is the best way to fill up my funnel quickly.
 
-2 - Browsing for Easy Apply jobs posted in the last 3 days. 
+2 - Browse for LI Easy Apply jobs posted in the last 3 days. 
 
 3 - source new leads
 
