@@ -76,7 +76,7 @@ https://en.wikipedia.org/wiki/List_of_American_and_British_defectors_in_the_Kore
 
 It's a thuggish regime that needs to be destroyed within my lifetime.
 
-North Korea is infiltrating IT departments in the US. One DPRK spy passed two federal background checks, and came out clean. Another eerie detail: the NK spy wired 90% of his earnings back to the Fatherland. 
+They're infiltrating IT departments in the US. One DPRK spy passed two federal background checks, and came out clean. Another eerie detail: the NK spy wired 90% of his earnings back to the Fatherland. 
 
 This on top of the fact that in the past few weeks, the DPRK has been targeting US power grids, and have initiated a campaign of ransomeware toward hospitals. Little kids die when people attack hospitals. And that's why these bastards have to be stopped.
 Something every sane person can get behind.
