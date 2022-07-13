@@ -124,6 +124,11 @@ Weekly resume goal: 50 per day. They say it's useless to send out resumes blindl
 7 - take one Sec+ practice test per night.
 
 
-  
+
+
+BLOGSPOT 2 / JULY 10 2022
+
+
+  https://www.dailydot.com/debug/geofencing-warrants-surveillance-police/?fbclid=IwAR2agrsvFHZ4KpwOaAGGSrbJzaVoMp8ncrQCjgd35NggjjaiqkWqeyKD80s
   
   
