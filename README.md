@@ -129,6 +129,22 @@ Weekly resume goal: 50 per day. They say it's useless to send out resumes blindl
 BLOGSPOT 2 / JULY 10 2022
 
 
+GEOFENCING: great read about geofencing and forsensics
+
   https://www.dailydot.com/debug/geofencing-warrants-surveillance-police/?fbclid=IwAR2agrsvFHZ4KpwOaAGGSrbJzaVoMp8ncrQCjgd35NggjjaiqkWqeyKD80s
+  
+  
+  
+  
+  BLOG SPOT 3 / JULY 15 2022
+  
+  Week in review.
+  
+  *Spoke with Mike Daniels, from Lakeridge HS. We spoke a lifetime ago, when he got home from being in Iraq during Desert Storm I. Great guy - had some interesting ideas to switch up my job search (adding healthcare into the mix). Mke was even cool enough to make a post on Linked In about my interest in enlarging my network. Established contacts, and spoke with Alex Guildlay @ Hertz.
+  
+  *Finally had a Zoom call with Irene @ the UCLA / bootcamp career center. She was impressed that I had booked so many interviews, and basically told me to keep doing whatever I was already doing. Also - received a few good tips on how to tweak my resume. 
+  
+  *Quick phone chat with a recruiter in the healthcare industry. Good advice - plenty of cyber-related jobs.
+  *Blown off my a jr recruiter on Friday. First time in my search that's happened.
   
   
