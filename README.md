@@ -140,7 +140,7 @@ GEOFENCING: great read about geofencing and forsensics
   
   Week in review.
   
-  *Spoke with Mike Daniels, from Lakeridge HS. We spoke a lifetime ago, when he got home from being in Iraq during Desert Storm I. Great guy - had some interesting ideas to switch up my job search (adding healthcare into the mix). Mke was even cool enough to make a post on Linked In about my interest in enlarging my network. Established contacts, and spoke with Alex Guildlay @ Hertz.
+  *Spoke with Mike Daniels, from Lakeridge HS. We talked a lifetime ago @ a TKF show @ Key Largo, when he got home from being in Iraq during Desert Storm I. Great guy - had some interesting ideas to switch up my job search (adding healthcare into the mix). Mke was even cool enough to make a post on Linked In about my interest in enlarging my network. Established contacts, and spoke with Alex Guildlay @ Hertz.
   
   *Finally had a Zoom call with Irene @ the UCLA / bootcamp career center. She was impressed that I had booked so many interviews, and basically told me to keep doing whatever I was already doing. Also - received a few good tips on how to tweak my resume. 
   
