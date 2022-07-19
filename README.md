@@ -126,7 +126,7 @@ Weekly resume goal: 50 per day. They say it's useless to send out resumes blindl
 
 
 
-BLOGSPOT 2 / JULY 10 2022
+BLOGSPOT 3 / JULY 10 2022
 
 
 GEOFENCING: great read about geofencing and forsensics
@@ -136,7 +136,7 @@ GEOFENCING: great read about geofencing and forsensics
   
   
   
-  BLOG SPOT 3 / JULY 15 2022
+  BLOG SPOT 4 / JULY 15 2022
   
   Week in review.
   
@@ -146,5 +146,43 @@ GEOFENCING: great read about geofencing and forsensics
   
   *Quick phone chat with a recruiter in the healthcare industry. Good advice - plenty of cyber-related jobs.
   *Blown off my a jr recruiter on Friday. First time in my search that's happened.
+  
+   BLOG SPOT 5 / JULY 18 2022
+  
+   ![7-Deadly-Scams-1200x628-v2](https://user-images.githubusercontent.com/99157857/179635339-1dbadc89-9093-43d8-9a99-dfb070fb6d2b.png) 
+ 
+ 
+ 
+ 
+Fake job postings are a real thing. There has been an uptick recently of fake job postings being posted to reputable sites (LinkedIn, Indeed)
+
+The article below outlines a few tips on identifying scams, but here are a few that I personally look out for:
+
+ *email syntax: if something sounds 'off' in the phrasing of an email, we're not off to a great start. The emails sound the same as emails I exchanged with my counterparts in China during my time in apparel & footwear. Hard to describe, and it isn't necessarily a deal breaker, but it does activate my radar.
+ 
+    *email addresses: hotmail / aol / yahoo / gmail...are all a sign of shenanigans. With Gmail, I give the sender a little leeway. Gmail is a solid and reliable tool.
+    
+    *typosquatting. Always reverse-engineer domain names. 
+    
+    *web presence: if you don't see anything about the company online, it's definitely a scam.
+    
+    *Even if the company has a decent-looking profile, I still look @ company profiles on LinkedIn and GlassDoor. Do your best to make sure the employee accounts aren't fake. 
+    
+    *Anything having to do with out-of-pocket expenses is a scam. Or a pyramid scheme. One scammer in Africa asked me to send over iPhones in order to grease the wheels of the Nigerian bureaucracy. 
+
+    *Interviews done online, or on non-verbal apps (WhatsApp, Skype, etc)
+    
+    In terms of cyber security, I believe this aspect of due dilligence is fun.
+    
+   Keep your eyes open at all times. 
+  
+  
+
+
+  
+  
+  
+  
+  https://www.wspa.com/news/consumer/scamming-job-applicants-how-to-spot-a-fake-listing/
   
   
