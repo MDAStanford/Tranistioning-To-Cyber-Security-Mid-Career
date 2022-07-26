@@ -186,3 +186,4 @@ The article below outlines a few tips on identifying scams, but here are a few t
   https://www.wspa.com/news/consumer/scamming-job-applicants-how-to-spot-a-fake-listing/
   
   
+ BLOG SPOT 5 / JULY 26 2022
