@@ -1,4 +1,4 @@
-# Tranistioning-To-Cyber-Security-Mid-Career
+# Transitioning-To-Cyber-Security-Mid-Career
 or...The Adventures Of Mick Changing Industries
 
 
