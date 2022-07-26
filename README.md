@@ -187,3 +187,17 @@ The article below outlines a few tips on identifying scams, but here are a few t
   
   
  BLOG SPOT 5 / JULY 26 2022
+ 
+ EMPLOYMENT AGENCIES: casting my net wide includes the use of employment agencies - different from HR or recruiters, the agencies assist new college grads and veterans to find employment. In exchange, the agency asks for 5% of earnings for a year, sometimes as much as 24 months.
+ I've always been told that - generally speaking - these types of agencies should be avoided, and that any legitimate agency would be commissioned by the employer. But my research indicates that these agencies are a viable option in the job hunt.
+ 
+ Here are my experiences with these agencies so far:
+ 
+ *MONDAY* Had a very short call with Agency A. Turns out that the positions they have are hybrid, not remote as advertised. That's not a dealbreaker, but...there were no clients / projects in or around Los Angeles.
+ 
+ *TUESDAY* Spoke with Agency B over Zoom. They won't help until I've earned my Security+ certification. And once I have my Sec+, there's a diminishd chance I would need this agency. 
+    I'll stay in touch with the agency, but this isn't anything to hang my hat on.
+    Also on Tuesday, I signed up with Agency C. Everything checked out in my due dillengce.
+    
+    I'm keeping an open mind, and will report back on Agency C.
+    
