@@ -201,3 +201,13 @@ The article below outlines a few tips on identifying scams, but here are a few t
     
     I'm keeping an open mind, and will report back on Agency C.
     
+BLOGSPOT 6 / AUGUST 2 2022
+
+About me: I don't know why I jumped into this blog without giving my background information for context.
+   I'm 56 years old, and originally from Portland OR. My career has included multiple roles in the athletic footwear and apparel industry - sourcing, logistics and then direct exposure to product, initially in development and then movong into product management.
+   In 2007 I was recruited for a job in Los Angeles. Didn't know a soul, but for a bunch of reasons it was time to leave Portland. The rain was killing me (FYI: I'm a Pacific NW native, and used to the rain), there were rumors abvout re-organization / layoffs within the company, burn out, boredom. 
+    Los Angeles has been good to me, with the exception of work opportunities. 
+    
+    Eventually I branched out on my own as a freelancer, and business was great. My client roster was awesome, and the work wasn't tough to find based on the network I had established in the apparel / footwear / accessories industry. And then business dried up. 
+    I applied for multiple in-house positions, but came to the realization that I had (most likely) aged out of the industry. When you turn 50 in apparel, you either own a company or have reached upper-level positions. No one needs a 50 year old developer.
+    Rather than wait around for jobs, I created my own business - BearFlag California. Long story, but I ran out of money for marketing. Without a marketing budget, selling product online is nearly impossible. My goal is to generate enough marketing budget to sell my inventory (pouches)
