@@ -211,3 +211,17 @@ About me: I don't know why I jumped into this blog without giving my background 
     Eventually I branched out on my own as a freelancer, and business was great. My client roster was awesome, and the work wasn't tough to find based on the network I had established in the apparel / footwear / accessories industry. And then business dried up. 
     I applied for multiple in-house positions, but came to the realization that I had (most likely) aged out of the industry. When you turn 50 in apparel, you either own a company or have reached upper-level positions. No one needs a 50 year old developer.
     Rather than wait around for jobs, I created my own business - BearFlag California. Long story, but I ran out of money for marketing. Without a marketing budget, selling product online is nearly impossible. My goal is to generate enough marketing budget to sell my inventory (pouches)
+
+
+
+
+BLOGSPOT 7 / AUGUST 15 2022
+
+LINKED IN
+
+I've used Linked In since my days @ adidas America (1995 - 2000). It's a great networking tool - I've made some amazing relationships, and have even been offered employment. Twice. 
+
+But recently, Linked In has devolved into a dumpster fire of politics and over-sharing. Recently I've asked myself: is Linked In still a viable way to network, or has it devolved into social media?
+
+The answer, IMO is - Linked In is a double edged sword that has value, but that value comes with the price of having to trudge through arguments and other negative scenarios.
+My advice: use Linked In for networking only. Don't argue over partisan topics. At the very least, it's a poor reflection on a potential job candidate. Avoid the main feed, and use Linked In groups to establish contacts and learn about developing technology in your field of choice.
